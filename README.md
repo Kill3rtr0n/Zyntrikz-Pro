@@ -1,2 +1,0 @@
-# Zyntrikz-Pro
-Zyntrikz Pro
